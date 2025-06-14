@@ -183,4 +183,4 @@ For support, email support@quoteflow.com or create an issue in the GitHub reposi
 
 ---
 
-Made with ❤️ by the QuoteFlow team
+Made with ❤️ by the Dilshan weragoda graphics DETZ Studios team
